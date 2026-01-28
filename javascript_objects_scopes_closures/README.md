@@ -1,0 +1,2 @@
+Omo
+Dey work .jpg
